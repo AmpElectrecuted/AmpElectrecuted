@@ -1,6 +1,8 @@
 # AmpElectrecuted
 I am the best amp of them all.
 
+He/him or they/them pronouns
+
 ## 🚀 About Me
 
 - 🔭 I’m currently working on a Scratch mod
